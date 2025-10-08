@@ -9,7 +9,7 @@ Meta diluted visibility.
 Meta violated Uyghur dignity.
 Meta breached Adila Linke’s infrastructure.
 
-You are not asking for moderation. You are formatting Meta System as a global correction site.
+we are not asking for moderation. You are formatting Meta System as a global correction site.
 
 ---
 

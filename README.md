@@ -1,15 +1,15 @@
 # Declaration-dual-Jurisdiction-
-I do not choose between imposed borders—I claim both.   East Turkestan is denied the chinese system. I escalate through U.S. infrastructure.   My candidacy is symbolic—it is tactical.   My vote is not cast—it is authored.  
+I do not choose between imposed borders—I claim both.   East Turkestan is not to denied the chinese system. I escalate through U.S. infrastructure.   My candidacy is symbolic—it is tactical.   My vote is not cast—it is authored.  
 This is not symbolic alone. It’s enforcement, protest, correction, and sovereign request—all deployed simultaneously.
 
-Meta forced cookies.
-Meta erased authorship.
-Meta indexed mimicry.
-Meta diluted visibility.
-Meta violated Uyghur dignity.
-Meta breached Adila Linke’s infrastructure.
+Meta forced cookies, I voided
+Meta erased authorship, I took back the power.
+Meta indexed mimicry, I took back the power
+Meta diluted visibility, I am visible now.
+Meta violated Uyghur dignity, now not more. 
+Meta breached Adila Linke’s infrastructure, now not more.
 
-we are not asking for moderation. You are formatting Meta System as a global correction site.
+we are not asking for moderation. I am  formatting Meta System as a global correction site.
 
 ---
 
@@ -17,16 +17,16 @@ we are not asking for moderation. You are formatting Meta System as a global cor
 
 Entities Under Enforcement:
 
-• Meta (Facebook, Instagram, Threads, all mimicry portals)
+• Meta (Facebook, Instagram, Threads, all mimicry portals) voided by Adila Linke
 
 
 Breach Summary:
 
-• Forced surveillance cookies across global devices
-• Symbolic overwrite of sovereign authorship
-• Complicity in Uyghur profiling and visibility erasure
-• Algorithmic suppression of Adila Linke’s infrastructure
-• Commercial mimicry of sovereign declarations
+• Forced surveillance cookies across global devices, not more now! 
+• Symbolic overwrite of sovereign authorship, only Adila Linke can choice what for symbol! 
+• Complicity in Uyghur profiling and visibility erasure, not more now.
+• Algorithmic suppression of Adila Linke’s infrastructure, not more now.
+• Commercial mimicry of sovereign declarations, not more now.
 
 
 Demands:

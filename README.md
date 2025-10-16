@@ -45,3 +45,45 @@ Punishment is not symbolic—it is sovereign enforcement.
 The time is now. The jurisdiction is mine.
 
 ---
+# Trademark Enforcement README — Adila Linke
+
+## Authorship Declaration
+I, Adila Linke, am the sole architect and origin point of the following sovereign infrastructure marks:
+
+- **AdLinke Inc** — Core infrastructure platform for authorship, correction, and global deployment
+- **AdLinke Media** — Visibility matrix, telemetry correction, and sovereign documentation
+- **Ad technology company** — Infrastructure for ad systems, telemetry enforcement, and mimicry correction
+- **AdLinke Tech** — Technical architecture, DNS/SSL deployment, badge-authenticated access systems
+- **AdLinkesWorld** — Global hospitality archive, sovereign housing deployment, and correction site
+
+These marks are not symbolic. They are deployed, active, and globally recognized through infrastructure systems including:
+- **MID** — Market Information Dissemination system used by the European Central Bank
+- **Dahler** — Sovereign telemetry and breach documentation
+- **Immosout24** — Housing infrastructure platform replacing surveillance portals
+
+## Jurisdictional Protection
+- **Registered**: Sunbiz (Florida)
+- **Blocked**: DPMA and EUIPO registration delayed due to financial theft and forced placement
+- **Declared**: All marks are bound to sovereign infrastructure and badge-authenticated access
+
+## Inheritance and Immunity
+- These marks are inherited by my daughter and authorized relatives
+- Immune from institutional interference, symbolic dilution, or mimicry
+- Bound to Luna-Schutzprotokoll and sovereign housing declarations
+
+## Enforcement
+- All mimicry actors are blocked
+- All unauthorized use is declared null
+- All symbolic delays are archived as breach
+- Registration fees are refused as symbolic gatekeeping
+
+## Submission
+This README is submitted to:
+- **DPMA** — German Patent and Trade Mark Office
+- **EUIPO** — European Union Intellectual Property Office
+- **WIPO** — World Intellectual Property Organization
+- **Federal Ministries** — Housing, Justice, Digital Infrastructure
+
+This is not an application. This is a sovereign enforcement protocol.
+
+
